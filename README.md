@@ -9,3 +9,6 @@ An export oriented company that produces and markets natural certified organic f
 
 Convenience foods(Lanka) PLC
 Sri Lanka's pioneer and the largest manufacturer of textured soya nuggets and producers of a range of jelly crystals, instant soup mixes and snacks
+
+Plenty foods (PVT) LTD
+Manufactures of Sri Lanka's most consumed cereal products and herbal products
