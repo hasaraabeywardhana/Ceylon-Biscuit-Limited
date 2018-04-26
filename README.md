@@ -3,3 +3,6 @@ It is one of the fatest growing and largest conglomerates in Sri Lanka that manu
 
 CBL foods International (PVT) LTD
 Manufacturing chocalates,biscuits,wafers and jelly.
+
+CBL Natural foods (PVT) LTD
+An export oriented company that produces and markets natural certified organic fruit products,cashew nuts and coconut products
